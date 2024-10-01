@@ -1,1 +1,1 @@
-# Evaluating the Validity of the Power Recall Prime Methodology
+# Construct Validity of Social Power Recall Manipulations: Evidence from Memory Characteristics and Text Analysis
